@@ -5,4 +5,4 @@
 - like to learn new languages, take photographies & travel
 - let's connect on [Linkedin](https://www.linkedin.com/in/sara-maria-farencena-sbardelotto-3b8154275?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
-&emsp; PS: Kethlen is my buddy, she is kind, helpful & up for anything <3
+&emsp; PS: [Kethlen](https://github.com/kethlenmartins) is my buddy, she is kind, helpful & up for anything <3
