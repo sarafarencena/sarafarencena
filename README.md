@@ -1,5 +1,5 @@
 # Hey, you :)
-- majored a semester in Economics at @RandolphCollege in the USA
+- took a semester in Economics at @RandolphCollege in the USA
 - currently freshman Information Systems student at @Inteli
 - interested in Fintech, International Economics & Data Analysis
 - like to learn new languages, take photographies & travel
