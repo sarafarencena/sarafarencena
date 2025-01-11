@@ -1,4 +1,5 @@
 # Hey, you :)
+a little bit about me:
 - took a semester in Economics at @RandolphCollege in the USA
 - currently freshman Information Systems student at @Inteli
 - interested in Fintech, International Economics & Data Analysis
